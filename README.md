@@ -2,7 +2,7 @@
 - 👀 I’m interested in Public Health in Disasters
 - 🌱 I’m currently learning GIS
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me LinkedIn
+- 📫 Reach me @LinkedIn
 - 😄 Pronouns: HE/HIM
 - ⚡ Fun fact: ...
 
